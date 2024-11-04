@@ -6,4 +6,4 @@ The movie that sticks to me the most even up to this day is the movie called *De
 > My top three (3) genres I'd like to watch includes:
 1. Coming-of-age
 2. Anime
-3. Romance
+3. Romance 
